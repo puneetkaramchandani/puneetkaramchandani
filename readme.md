@@ -5,7 +5,7 @@
 
 📚 Constantly learning, coding, and creating
 
-💼 Over 5 years of hands-on experience in software development
+💼 Over 3 years of hands-on experience in software development
 
 🌐 Helping businesses thrive through innovative tech solutions
 
